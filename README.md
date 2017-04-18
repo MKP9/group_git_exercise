@@ -3,6 +3,8 @@
 
 #Wow!
 
+* :octocat:
+* :metal:
 * Mackenzie is awesome
 
 ## But...
