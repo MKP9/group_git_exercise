@@ -6,5 +6,10 @@
 * Mackenzie is awesome
 
 ## But...
-* Michael is way more awesomer
+* Michael is way more awesomer - way way more
+
+## Mackenzie is
+* Difficult but
+* still is ma
+* friend.
 
